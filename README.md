@@ -23,7 +23,7 @@ USAGE
 
     SSL
 
-MESSAGE ME > https://t.me/techiebrain
+MESSAGE ME > https://t.me/scampagescreator
 LEGAL DISCLAIMER
 
 INFO ✅
